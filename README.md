@@ -8,7 +8,7 @@
   CARVE MY NAME IN YOUR ASS BECAUSE OWNING YOU IS JUST NOT ENOUGH
 </p>
 <p align="center"> 
-  <img src="https://github.com/user-attachments/assets/090b00a3-79a9-49ba-819e-befae1f70d48" />
+  <img src="https://github.com/user-attachments/assets/9dae01db-4c66-4ce1-a866-39099ddfb221" />
 </p>
 <p align="center">
   John Doe (or just "Doe")
