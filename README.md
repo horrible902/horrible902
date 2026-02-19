@@ -5,9 +5,6 @@
   <img src="https://github.com/user-attachments/assets/0c5d52b7-4f9a-4e53-ad60-12f420ff5589" />
 </p>
 <p align="center"> 
-  CARVE MY NAME IN YOUR ASS BECAUSE OWNING YOU IS JUST NOT ENOUGH
-</p>
-<p align="center"> 
   <img src="https://github.com/user-attachments/assets/9dae01db-4c66-4ce1-a866-39099ddfb221" />
 </p>
 <p align="center">
